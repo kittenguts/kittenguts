@@ -16,6 +16,8 @@
 
 "You eat like a starved dog, yet throw up like a sick one."
 
+“I love you. Even though you can't see it.”
+
 ~
 
 {Lyric box !} {Current Joys}
