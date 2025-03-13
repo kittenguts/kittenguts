@@ -6,7 +6,7 @@
 
 ~
 
-{Quote box !}
+{Quote box !} {All by kittenguts}
 
 "Death is random, but it's never gone."
 
@@ -15,8 +15,6 @@
 "You can't walk through doors, don't try to get through a closed one."
 
 "You eat like a starved dog, yet throw up like a sick one."
-
-{All by kittenguts}
 
 ~
 
