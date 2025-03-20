@@ -2,7 +2,19 @@
 
 {Artist ,, Poet ,, Writer}
 
+{Atheist/Satanist {Do not force religion on me}}
+
+{I don't fck w ppl who romanticize trauma and mental illness !! DNI !!}
+
+{Do NOT trauma-dump on me !! = Blocked}
+
 {My top 3 music artists>> Current Joys ,, Destroy Boys ,, Femtanyl}
+
+{"Who saved yu?" Ahh question>> Current Joys ,, Guti ,, Salvia Palth}
+
+{Shoutout>> Danny💥💥💥💥💥💥💥 :Rubs hands togetehr menecingly:}
+
+{Animal kins>> Lamb ,, Rabbit}
 
 ~
 
@@ -17,6 +29,10 @@
 "You eat like a starved dog, yet throw up like a sick one."
 
 “I love you. Even though you can't see it.”
+
+"Do not try to be me, I am myself, you are not."
+
+"Do not do absurd things to stand out, you are not only hurting yourself, but the others around you aswell."
 
 ~
 
